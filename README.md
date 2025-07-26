@@ -1,1 +1,0 @@
-#E Gudang Kedai Maniac
